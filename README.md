@@ -30,3 +30,8 @@ https://youtu.be/ycV6cnK3SIs?si=RzprUYJJsmSbWzKo
 Sample & Make a video with : Rihanna - Loveeeeeee song ft. Future
 https://youtu.be/XveUBqF0T5w?si=MCxJJALk5puylQjk
 
+Sample the video of these 2 Records :
+King Von ft. Fivio Foreign - I Am What I Am
+https://youtu.be/JHixsTYXfso?si=i2X97knxTnqfq0Xr
+King Von - Still Trappin' (iTunes)
+
